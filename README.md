@@ -1,4 +1,4 @@
-<!-- ## Hi there 👋 -->
+<!-- ## Hi there -->
 
 -  Actualmente estoy trabajando en un super mercado 
 -  Actualmente estoy aprendiendo a programar 
