@@ -8,4 +8,3 @@
 - 📫 Cómo contactarme 0968452110
 - 😄 Pronombres: Jusi
 - ⚡ Dato curioso: Mi color favorito es el negro 
--->
