@@ -7,4 +7,4 @@
 -  Pregúntame sobre los fundamentos del software 
 -  Cómo contactarme 0968452110
 -  Pronombres: Jusi
--  Dato curioso: Mi color favorito es el negro y rojo 
+-  Dato curioso: Mi color favorito es el negro 
